@@ -99,4 +99,3 @@ La ville de Limoges fait face à des problèmes de congestion urbaine liés à l
 ***
 
 
-Prends une grande inspiration, tu as travaillé dur, ton architecture est solide et tu maîtrises ton sujet de bout en bout. Fonce !
